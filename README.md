@@ -1,6 +1,6 @@
 ### Hi there 👋, It's Ahamed
 #### CEO | IT Consultant | MERN Developer | Graphics Designer | You-tuber | Digital Transformation Specialist | Helping organisations rank quickly and cost-efficiently keeping them millions | Deploying Tech experts globally.
-![CEO | IT Consultant | MERN Developer | Graphics Designer | You-tuber | Digital Transformation Specialist | Helping organisations rank quickly and cost-efficiently keeping them millions | Deploying Tech experts globally.](https://media.licdn.com/dms/image/C5616AQEiS_ks_kjalA/profile-displaybackgroundimage-shrink_350_1400/0/1656533024390?e=1684368000&v=beta&t=YGFSgsTCCnoupmZEwyFWQIc2mKbtyThWVd2jNW-PQkU)
+![CEO | IT Consultant | MERN Developer | Graphics Designer | You-tuber | Digital Transformation Specialist | Helping organisations rank quickly and cost-efficiently keeping them millions | Deploying Tech experts globally.](https://media.licdn.com/dms/image/D5616AQF9ya1SgP3EYQ/profile-displaybackgroundimage-shrink_350_1400/0/1692825505160?e=1698278400&v=beta&t=AGffMzYcbv7TL6qfwGWLvwAefb9VESPnxKcvTPhfTEg)
 
 Hey there! Thanks for visiting my page.
 
