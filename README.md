@@ -5,7 +5,7 @@
 ### Are You Losing THOUSANDS in Revenue Every Month?
 ### While Your Competitors Dominate Online?
 
-![Banner]([https://media.licdn.com/dms/image/v2/D5616AQF9ya1SgP3EYQ/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1692825506526?e=1757548800&v=beta&t=CMIbElGgSddAcEV_5POLxaI2tXuSsr4AC8evGnYbO3U](https://media.licdn.com/dms/image/v2/D5616AQF9ya1SgP3EYQ/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1692825506526?e=1766016000&v=beta&t=htz6sEinhZ2RbbCTCHPiv0-p5sv0WcA72UddFv5vsfg))
+![Banner](https://media.licdn.com/dms/image/v2/D5616AQF9ya1SgP3EYQ/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1692825506526?e=1766016000&v=beta&t=htz6sEinhZ2RbbCTCHPiv0-p5sv0WcA72UddFv5vsfg)
 
 </div>
 
